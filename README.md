@@ -1,4 +1,4 @@
 GetOutdoors
 ===========
 
-our profect
+more info will be revealied soon, please tun in.
